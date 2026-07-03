@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://TealSupportLoot.github.io/visual-studio-pcwinmac-zl41/) |
  |---------------------|----------------------:|
 
 
